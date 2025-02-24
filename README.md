@@ -35,5 +35,4 @@
 ---
 
 🔗 **Connect with me:**  
-[![LinkedIn](https://www.linkedin.com/in/andrey-de-matos-goncalves-525935254/)  
-
+Andrey de Matos Gonçalves - LinkedIn
