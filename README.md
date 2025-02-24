@@ -35,4 +35,5 @@
 ---
 
 🔗 **Connect with me:**  
-Andrey de Matos Gonçalves - LinkedIn
+[Andrey de Matos Gonçalves - LinkedIn](https://www.linkedin.com/in/andrey-de-matos-goncalves-525935254/)
+
