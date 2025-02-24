@@ -35,5 +35,5 @@
 ---
 
 🔗 **Connect with me:**  
-[![LinkedIn](www.linkedin.com/in/andrey-de-matos-goncalves-525935254)  
+[![LinkedIn](https://www.linkedin.com/in/andrey-de-matos-goncalves-525935254/)  
 
